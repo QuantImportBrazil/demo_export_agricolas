@@ -4,7 +4,7 @@
 
 ---
 
-## Soja — Projeções de Exportação  
+## Projeções de Exportação  
 
 ---
 
